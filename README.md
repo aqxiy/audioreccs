@@ -1,4 +1,4 @@
-# audio purchasing reccs
+# Audio that should perform
 
 ### For PC, Ryzen Gen 5XXX + & Windows 11
 
