@@ -16,7 +16,6 @@ Playlist: https://open.spotify.com/playlist/2nkQO8z4O9l3d3Voug7DNl
 
 Phone: Nord N30 5G (black); Solid specs, excellent camera sensor base for future algo
 
-https://www.amazon.com/OnePlus-Unlocked-Dual-SIM-Charging-Chromatic/dp/B0C22BRGLG
 
 Phone case (black): 
 
