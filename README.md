@@ -2,7 +2,7 @@
 
 ### For PC, Ryzen Gen 5XXX + & Windows 11
 
-Headphones: KZ EDX Gen 1 black no mic
+Headphones: Panasonic ErgoFit Wired Earbuds RP-HJE120-K
 
 Speakers: PreSonus Eris E3.5 Gen 2
 
